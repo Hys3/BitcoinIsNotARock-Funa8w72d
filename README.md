@@ -5,4 +5,12 @@ https://opensea.io/assets/matic/0x2953399124f0cbb46d2cbacd8a89cf0599974963/79686
 
 ::
 
+Minerals shaped the structure of our universe, but numbers gave us life. For this reason, we trust in numbers...
+
+:::::
+
+This asset recalls the work of Satoshi Nakamoto and the people who divulge about the Metaverse. Thanks, FunOnTheRide.
+
+:::::
+
 ![image](https://user-images.githubusercontent.com/96759911/149958420-f3fec846-fdf8-4620-8308-5d934384370a.png)
